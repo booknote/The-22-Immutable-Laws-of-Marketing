@@ -28,9 +28,7 @@ others that have failed, why good ideas didn't live up to expectations, and
 offer their own ideas on what would have worked better. The real-life examples,
 common sense suggestions and killer instincts contained are nothing less than
 rules by which companies will flourish or fail.
-[Source](https://www.amazon.co.uk/22-Immutable-Laws-Marketing/dp/1861976100)
+[Source](http://amzn.to/2qUKgBm)
 
 ## Buy it
-If you enjoy these notes, please
-[purchase the book](https://www.amazon.co.uk/22-Immutable-Laws-Marketing
-  /dp/1861976100)!
+If you enjoy these notes, please [purchase the book](http://amzn.to/2qUKgBm)!
